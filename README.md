@@ -7,5 +7,5 @@
 📗 You can check out the Flytrap [case study](https://getflytrap.github.io/case-study/) to learn more.
 
 📫 Reach me at: 
-- [LinkedIn](www.linkedin.com/in/saul-thompson-71a58b17a)
+- [LinkedIn](https://www.linkedin.com/in/saul-thompson-71a58b17a)
 - [email](saulthompson@hotmail.co.uk)
