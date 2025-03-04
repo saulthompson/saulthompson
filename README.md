@@ -8,4 +8,4 @@
 
 📫 Reach me at: 
 - [LinkedIn](https://www.linkedin.com/in/saul-thompson-71a58b17a)
-- [Email](mailto:saulthompson@hotmail.co.uk)
+- [Email](mailto:saulthomp@outlook.com)
